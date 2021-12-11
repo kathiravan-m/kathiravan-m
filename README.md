@@ -9,6 +9,5 @@
 - 😄 Pronouns: ...kathir/kari 
 - ⚡ Fun fact: ...too bad as good
 - 📫 know me @: ...https://kathiravan-m.github.io
-- 
-- 
+
 
