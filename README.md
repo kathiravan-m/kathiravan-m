@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with ...everything
 - 💬 Ask me about ...anything
 - 📫 How to reach me: ...https://twitter.com/Kathir_avan_m
-- 😄 Pronouns: ...kathir/kari 
+- 😄 Pronouns: ...kathiravan/kari 
 - ⚡ Fun fact: ...too bad as good
 - 📫 know me @: ...https://kathiravan-m.github.io
 
